@@ -1,5 +1,4 @@
 # Team of mine
-Name: Yaobo Tian
+Name: Yaobo Tian 2nd
 
-Introduction: Yaobo is a person from China who studied EAP level 8 before learning IDP. In free time, He is passionate about the landscape photograph that he visited different place around his hometown with Nikon D7200. However, having to focus on his project, he can not always travel further that it is what hae been bothering him.
-
+Introduction: the 2nd Yaobo also comes from China. But what makes he different from Yaobo is that he started to shoot other type of photograph when he found he can not travel further to take landscape-photo. When he got his first telephoto lens - 70-200, he started to shoot sports photograph that has been being 1 years from when he back to China. What's more, he have been invited to shoot cycle race, badminton, soccer, and basketball competition for many times. Now, what he like to do is to take some photos of people who are train in the football field nearby his home after finishing his homework. And, his also take some photo of sunrise and sunset, if he has more time.
